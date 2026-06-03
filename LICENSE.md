@@ -1,4 +1,4 @@
-# 
+# Turbo mean reversion trading bot outils pour Mac OS | Personnalisé mean reversion trading bot outils pour PC Windows. Avec suivi de portefeuille et protection contre le front-running — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
